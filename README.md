@@ -1,0 +1,2 @@
+# Turan
+TENGRİ BİZ MENEN
